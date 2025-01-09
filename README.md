@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Java, JavaScript**
 
-- 📫 How to reach me **youvrajsingh29052002@gmail.com**
+- 📫 How to reach me **youv2002@gmail.com**
 
 - ⚡ Fun fact: **I earned my Bachelor of Science in Computer Science in 2023, but it wasn't until recently that I discovered the true significance of programming 🚀. Now, I'm on a journey to turn my passion for coding into a career, and I'm excited to see where this newfound passion will take me!  🚀😄 #DreamsAndCode 💻😄 #LifeOfADreamer!**
 
